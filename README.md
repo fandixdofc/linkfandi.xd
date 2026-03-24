@@ -1,1 +1,0 @@
-# linkfandi.xd
